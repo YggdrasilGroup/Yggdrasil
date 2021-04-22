@@ -1,5 +1,5 @@
 # Yggdrasil
 
-![Yggdrasil](https://i.imgur.com/tM3lKwf.png)
+![Yggdrasil](https://imgur.com/iWc3qNv)
 
 ## Apenas um grupo de pessoas pensantes.
